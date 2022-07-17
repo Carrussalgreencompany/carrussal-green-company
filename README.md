@@ -63,7 +63,7 @@ Requirement/How to Start Off:
 
  Get an account with the name of the company
 
- Raise the sum of One Million Naira (N1,000,000.00) only as a take-
+ Raise the summary of One Million NFT (NFT1,000,000.00) only as a take-
 off capital
 
  Thereafter we kick off the company’s operations as earlier stated..
